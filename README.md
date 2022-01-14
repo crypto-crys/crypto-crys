@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @crypto-crys
+- 👀 I’m a Blockchain/Crypto/NFT/Web3 fanatic! I've held many positions in the tech space serving global clients through either data analytics, robotics process automation, and business/technology consulting.
+- 🌱 I’m currently learning anything related to Web3
+- 💞️ I’m looking to collaborate on Crypto/NFT projects
+- 📫 How to reach me YouTube CryptoCrys, Twitter @CryptoChrys
